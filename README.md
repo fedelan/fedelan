@@ -2,7 +2,6 @@
 </p>
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=900&color=FF0000&lines=𝐁𝐢𝐞𝐧𝐯𝐞𝐧𝐢𝐝𝐨+𝐚𝐥+𝐑𝐞𝐩𝐨𝐬𝐢𝐭𝐨𝐫𝐢𝐨+𝐎𝐟𝐢𝐜𝐢𝐚𝐥+𝐝𝐞;✨fedelan✨;)](https://git.io/typing-svg)
-![g᥆kᥙ_ᑲᥣᥲᥴk-mძ]
 ---
 > ⍴r᥆⍴іᥱ𝗍ᥲrі᥆ ⁱᵃᵐ|𝗍һᥱ-ᥣᥱgᥱᥒძ¥𒆜
 ---

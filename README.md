@@ -13,4 +13,3 @@
 <a
 href="https://github.com/fedelan"><img src="https://github.com/fedelan.png" width="130" height="130" alt="ⁱᵃᵐ|𝗍һᥱ-ᥣᥱgᥱᥒძ¥𒆜"/></a>
 
-## ©️ ⍴᥆ᥕᥱrᥱძ ᑲᥡ ⁱᵃᵐ|𝗍һᥱ-ᥣᥱgᥱᥒძ¥𒆜

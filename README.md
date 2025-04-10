@@ -9,7 +9,7 @@
 ### **`🔗 Enlace oficial `**
 
 <details>
- <summary><b> 🍒 Grupos Oficiales </b></summary>
+ <summary><b> 🍒 Grupo Oficial </b></summary>
 
 | APP | TIPO | ENLACE |
 |------|-------------|-------|
